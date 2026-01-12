@@ -1,1 +1,0 @@
-# Analise-Ensino-Superior-2022
